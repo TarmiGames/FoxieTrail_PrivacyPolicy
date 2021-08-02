@@ -1,0 +1,1 @@
+# FoxieTrail_PrivacyPolicy
